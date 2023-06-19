@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jjforeverzhou
+- 👀 I’m interested in JJ Lin
+- 🌱 I’m currently learning music
+- 💞️ I’m looking to collaborate on JJ fan music family
+- 📫 douban, youtube, etc
